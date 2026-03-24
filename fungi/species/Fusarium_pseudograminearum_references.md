@@ -9,4 +9,4 @@
 
 Picture credit: [CSIRO](http://www.csiro.au/): [White heads of wheat
 caused by fusarium crown
-rot.](http://www.scienceimage.csiro.au/image/11263/white-heads-of-wheat-caused-by-fusarium-crown-rot/)
+rot.](https://commons.wikimedia.org/wiki/File:CSIRO_ScienceImage_11263_White_heads_of_wheat_caused_by_Fusarium_crown_rot.jpg)
